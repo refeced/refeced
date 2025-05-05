@@ -1,7 +1,7 @@
 sdfsdfv965dfvdfdsadszssdf- 👋 Hi, I’m @refecedw
 - 👀 I’m interested in ...*96+
 - 🌱 I’m currently learning ...saf544
-- 💞️ I’m looking to collaborate on ...vbnbcg
+- 💞️ I’m looking to collaborate on ...vbnbcgvccbc
 - 📫 How to reach me ...12sdf4747645583663fsdgdgfb3brrbrjhhjbgffdgbxcvcxv512cxzcxcvbfdfdcx63
 - 😄 Pronouns: ...fv11345ewewasdertcvx7447sfcxzgfsdfrthdfcwww
 - ⚡ Fun fact: ...sd54548596744747bgfааппfdddddewhnggcbvbvcewwffdffdsdfsdccxxcsdfsfdsdfxxx
