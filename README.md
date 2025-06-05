@@ -1,6 +1,6 @@
 lk52sdfsdfv965dfvdfdsadszssdf- 👋 Hi, I’m @refecedwrt
-- 👀 I’m interested in ...*96+tvbn
-- 🌱 I’m currently learning ...saf544vbnwreweefgddff
+- 👀 I’m interested in ...*96+tvbnkyhgj
+- 🌱 I’m currently learning ...saf544vbnwreweefgddffu
 - 💞️ I’m looking to collaborate on ...vbnbcgvccbcvbngbcvcvgerregcv
 - 📫 How to reach me ...12sdf4747645583663fsdgdgfb3brrbrjhhjbgffdgbxcvcxv512cxzcxcvbfdfdcx63ryrrhtgvfffwdsdfdsnghghghnnhngnhghg696878
 - 😄 Pronouns: ...fv11345ewewasdertcvx7447sfcxzgfsdfrthdfcwww962qwwqavbykuyukkuy
